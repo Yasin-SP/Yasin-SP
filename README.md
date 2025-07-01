@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there , My Name is Yasin👋
 
 # 💫 About Me:
 🌱 I’m currently learning
