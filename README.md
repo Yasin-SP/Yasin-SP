@@ -1,4 +1,4 @@
-## Hi there , Im Yasin Soleyman Panah👋
+## Hi there , Im Yasin SoleymanPanah👋
 
 # 💫 About Me:
 🌱 I’m currently learning
